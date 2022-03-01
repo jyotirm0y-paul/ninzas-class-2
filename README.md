@@ -1,0 +1,1 @@
+# ninzas-class-3
